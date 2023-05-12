@@ -1,5 +1,5 @@
 # 💫 About Me:
-👨🏻‍💻  About Me<br>💡  I like to explore new technologies and develop software solutions and quick hacks.<br>💪  I am a fullstack web developer.<br>🌱  I'm on track for creating web a better place, develop better and efficient systems.<br>✍️  In my free time, I watch informative youtube videos, play football.<br>💬  Feel free to reach out to me for pro bono consulting and volunteering, or just for some interesting discussion.<br>✉️  You can shoot me an email at jontykantiwal@gmail.com! I'll try to respond as soon as I can.<br>📄  Please have a look at my Résumé for more details about me. I'm open to feedback and suggestions!
+👨🏻‍💻  About Me<br>💡  I like to explore new technologies and develop software solutions and quick hacks.<br>💪  I am a fullstack web developer.<br>🌱  I'm on track for creating web a better place, develop better and efficient systems.<br>✍️  In my free time, I watch informative youtube videos, play Cricket.<br>💬  Feel free to reach out to me for pro bono consulting and volunteering, or just for some interesting discussion.<br>✉️  You can shoot me an email at mohankrishnagajula19@gmail.com! I'll try to respond as soon as I can.<br>📄  Please have a look at my Résumé for more details about me. I'm open to feedback and suggestions!
 
 
 ## 🌐 Socials:
